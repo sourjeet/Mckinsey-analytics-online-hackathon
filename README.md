@@ -1,0 +1,1 @@
+# mckinsey-analytics-online-hackathon
